@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about scratch? *why?* i only know abt tht and htmL
 - 📫 How to reach me: heylithav@gmail.com (personal) *ScratchCatLanka@gmail.com* (my org)
 
-- ⚡ Fun fact: I watch tech y2ubers like JRE/GreatScott and ElectroBOOM(even tho he swears a LOT)
+- ⚡ Fun fact: I watch tech y2ubers like JRE/GreatScott 
 -->
